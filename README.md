@@ -1,16 +1,13 @@
-## Hi there 👋
+this is 4 pt hai
 
-<!--
-**solipsizzle/solipsizzle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+i'm 2 lazy to make this look good rn
 
-Here are some ideas to get you started:
+like it's 3am as i'm writing this and i'm trying to bore myself to sleep
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+— c+h yes
+— umm talking to me also yes BUT i might b afk so beware
+— kisses yeah sure idm
+— i dunnooow i can't think rnn uhhh uhhhhh uhhmmmmmm
+— i had a rlly good dream earlier but then i woke up and i can't continue it Help me Please
+
+will be deleted soon
