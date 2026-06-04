@@ -36,3 +36,8 @@
 <P align="middle"><img src="https://github.com/user-attachments/assets/3f342859-4565-4cac-b381-ccd86e0836c2" width="35%"/>
 
 <P align="middle">𝗼𝗵 𝗮𝗹𝘀𝗼 𝘆𝗼𝘂 𝗰𝗮𝗻 𝗮𝘀𝗸 𝗼𝗿 𝗱𝗿𝗮𝘄 𝗺𝗲 𝘀𝘁𝘂𝗳𝗳 𝗶𝗻 𝘀𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲 :3𝗰
+
+<P align="middle"> <img src="https://static.wikia.nocookie.net/ensemble-stars/images/1/14/%28Sakura-Colored_Night%29_Kohaku_Oukawa_Chibi.gif/revision/latest?cb=20220415140434" width="35%"/>
+
+![IMG_20241003_023124](https://github.com/user-attachments/assets/af910134-7b8f-46e0-99db-7347185e4461)
+
