@@ -25,7 +25,7 @@
 𝙄𝙉𝙏𝙀𝙍𝙀𝙎𝙏𝙎??⠀
 <img src="https://github.com/user-attachments/assets/7071929a-8689-4cfc-8d4c-52c858b21e41"/>
 
-<P align="middle">➪   mainly  𝘱𝘩𝘪𝘨𝘩𝘵𝘪𝘯𝘨, 𝘦𝘯𝘴𝘵𝘢𝘳𝘴, 𝘷𝘰𝘤𝘢𝘭𝘰𝘪𝘥, 𝘰𝘣𝘫𝘦𝘤𝘵 𝘴𝘩𝘰𝘸𝘴 & 𝘱𝘢𝘵𝘩 𝘵𝘰 𝘯𝘰𝘸𝘩𝘦𝘳𝘦  // ғᴏʀ ᴏᴛʜᴇʀs, sᴛʀᴀᴡᴘᴀɢᴇ!!
+<P align="middle">➪   mainly  𝘱𝘩𝘪𝘨𝘩𝘵𝘪𝘯𝘨, 𝘦𝘯𝘴𝘵𝘢𝘳𝘴, 𝘷𝘰𝘤𝘢𝘭𝘰𝘪𝘥, 𝘰𝘣𝘫𝘦𝘤𝘵 𝘴𝘩𝘰𝘸𝘴 & 𝘱𝘢𝘵𝘩 𝘵𝘰 𝘯𝘰𝘸𝘩𝘦𝘳𝘦 ((oh also minecraft but this was added later and i don't have the font...)) // ғᴏʀ ᴏᴛʜᴇʀs, sᴛʀᴀᴡᴘᴀɢᴇ!!
 
 <P align="middle"><img src="https://github.com/user-attachments/assets/0c368f4c-7802-4284-ba07-c241e3459919"/>⠀
 𝙎𝙏𝙐𝙁𝙁 𝘼𝘽𝙊𝙐𝙏 𝙈𝙀??⠀
